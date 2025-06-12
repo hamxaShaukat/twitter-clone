@@ -3,7 +3,7 @@
 
 
 ## ▶ **Video Demo**  
-🎥 **[Watch Walkthrough](https://youtube.com/your-link)** *(Show tweet posting, comments, and profile updates)*  
+🎥 **[Watch Walkthrough](https://youtu.be/y5n5v_43y4I?feature=shared)** *(Show tweet posting, comments, and profile updates)*  
 
 ---
 
